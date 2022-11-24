@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anzman22
+- 👀 I’m interested in bulk email
+- 🌱 I’m currently learning ... to spam
+- 💞️ I’m looking to collaborate on 50%
+- 📫 How to reach me ... @N0BIDER 
